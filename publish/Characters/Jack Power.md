@@ -1,0 +1,1 @@
+Funeral group with [[Leopold Bloom]], [[Martin Cunningham]] and [[Simon Dedalus]]
