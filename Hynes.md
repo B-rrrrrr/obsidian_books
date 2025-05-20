@@ -1,0 +1,1 @@
+Writes the paper on the death of [[Paddy Dignam]] for the [[Freeman's Journal]]

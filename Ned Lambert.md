@@ -1,0 +1,1 @@
+Mourner at [[Funeral Group]] and is met at the [[Freeman's Journal]]
