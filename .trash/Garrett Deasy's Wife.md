@@ -1,0 +1,1 @@
+Had the foot and mouth disease and died from it
