@@ -1,2 +1,2 @@
-knows [[Leopold Bloom]]
-married to [[Denis Breen]]
+Used to be the girlfriend [[Leopold Bloom]]
+Married to [[Denis Breen]]

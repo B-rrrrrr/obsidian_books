@@ -5,5 +5,6 @@ Is a history teacher with [[Garrett Deasy]] as his "boss"
 Literature friends at the [[Freeman's Journal]] whom he brings the letter of foot and mouth disease to
 Owes money for rent to [[Buck "Malachi" Mulligan]]
 [[Buck "Malachi" Mulligan]]'s Aunt thinks that Stephen killed his [[Stephen Dedalus' Mother]]
+Dedalus Household collapsed after the death of his mother
 Father [[Simon Dedalus]]
 

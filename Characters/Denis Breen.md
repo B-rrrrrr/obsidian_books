@@ -1,2 +1,2 @@
-married to [[Mrs Breen]]
-is called crazy by [[Leopold Bloom]]
+Married to [[Mrs Breen]]
+Is called crazy by [[Leopold Bloom]]

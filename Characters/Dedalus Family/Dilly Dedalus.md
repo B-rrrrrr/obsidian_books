@@ -1,0 +1,1 @@
+Daughter of [[Stephen Dedalus' Mother]] and [[Simon Dedalus]]

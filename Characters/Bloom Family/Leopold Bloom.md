@@ -7,3 +7,4 @@ Part of the [[Funeral]]
 Seems to be not faithful to his wife in regards to [[Martha]] and that random woman he tried seeing the panties of
 Also keeps thinking of [[Martha]]
 Extremely judgmental to everyone and everything
+Used to be happier when he worked at Helys
