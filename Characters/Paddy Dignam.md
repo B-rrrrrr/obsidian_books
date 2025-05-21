@@ -1,1 +1,1 @@
-Dead since Monday from heart breakdown, funeral at 11 during "Lotus Eaters" (see [[Funeral Group]])
+Dead since Monday from heart breakdown, funeral at 11 during "Lotus Eaters" (see [[Funeral]])

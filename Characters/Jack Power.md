@@ -1,1 +1,1 @@
-Part of the [[Funeral Group]]
+Part of the [[Funeral]]

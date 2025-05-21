@@ -1,2 +1,2 @@
 Sympathetic towards [[Leopold Bloom]]
-Part of the [[Funeral Group]]
+Part of the [[Funeral]]
