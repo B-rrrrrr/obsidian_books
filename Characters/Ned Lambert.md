@@ -1,1 +1,1 @@
-Mourner at [[Funeral]] and is met at the [[Freeman's Journal]]
+Mourner at [[6. Hades (Funeral)]] and is met at the [[7. Aeolus (Freeman's Journal )]]

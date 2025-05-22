@@ -1,1 +1,1 @@
-On whom [[Leopold Bloom]] has to make an ad about for the [[Freeman's Journal]]
+On whom [[Leopold Bloom]] has to make an ad about for the [[7. Aeolus (Freeman's Journal )]]

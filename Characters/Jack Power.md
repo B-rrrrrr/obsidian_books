@@ -1,1 +1,1 @@
-Part of the [[Funeral]]
+Part of the [[6. Hades (Funeral)]]

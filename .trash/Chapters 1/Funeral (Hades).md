@@ -1,0 +1,1 @@
+The group that goes to the funeral for [[Paddy Dignam]] at 11 during Hades
