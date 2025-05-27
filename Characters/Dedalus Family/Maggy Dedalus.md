@@ -1,2 +1,2 @@
 Daughter of [[Simon Dedalus]] and [[Stephen Dedalus' Mother]]
-Pawns books
+Pawns books of [[Stephen "Kinch" Dedalus]]

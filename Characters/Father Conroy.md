@@ -1,0 +1,1 @@
+[[Paddy Dignam]] was at confession with him
