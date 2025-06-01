@@ -1,1 +1,1 @@
-[[Paddy Dignam]] was at confession with him
+[[Willy Paddy Dignam]] was at confession with him

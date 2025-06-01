@@ -1,1 +1,1 @@
-Son of [[Paddy Dignam]] 
+Son of [[Willy Paddy Dignam]] 
