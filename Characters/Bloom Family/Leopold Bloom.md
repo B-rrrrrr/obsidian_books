@@ -8,3 +8,6 @@ Seems to be not faithful to his wife in regards to [[Martha]] and that random wo
 Also keeps thinking of [[Martha]]
 Extremely judgmental to everyone and everything
 Used to be happier when he worked at Helys
+Lost his virginity to a whore
+Looking for a son in comparison to [[Stephen "Kinch" Dedalus]]
+Opposite to [[Stephen "Kinch" Dedalus]]

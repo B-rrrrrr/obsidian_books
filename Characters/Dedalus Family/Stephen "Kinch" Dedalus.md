@@ -7,4 +7,5 @@ Owes money for rent to [[Buck "Malachi" Mulligan]]
 [[Buck "Malachi" Mulligan]]'s Aunt thinks that Stephen killed his [[Stephen Dedalus' Mother]]
 Dedalus Household collapsed after the death of his mother
 Father [[Simon Dedalus]]
-
+Looking for a father figure in comparison to [[Leopold Bloom]]
+Opposite to [[Leopold Bloom]]
